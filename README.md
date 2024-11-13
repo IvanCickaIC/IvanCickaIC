@@ -7,4 +7,4 @@
 
 **Reach out for:** Networking, programming advice, project brainstorming, or collaborations 🚀
 
-📫 How to connect? [LinkedIn](www.linkedin.com/in/ivan-cicka) | [Email](mailto:ivan.cicka.ic@example.com)
+📫 How to connect? [LinkedIn](https://www.linkedin.com/in/ivan-cicka/) | [Email](mailto:ivan.cicka.ic@example.com)
